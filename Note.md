@@ -1,0 +1,1 @@
+Link for 7th sem : https://drive.google.com/drive/folders/1XzIXLxX8meYSQ7XIeBvfWdQE30rzdwfI
